@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a graduating IT student at UM.
+I am a graduating BSIT student at University of Mindanao.
 
 
 ## 🌐 Socials:
